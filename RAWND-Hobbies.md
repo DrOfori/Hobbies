@@ -1,0 +1,8 @@
+- træning 
+- snakke i telefon med Horo
+- arbejde
+- doomscrolle på tiktok
+- se the mentalist 
+- at spise
+- at reposte ting på tiktok
+- self care
