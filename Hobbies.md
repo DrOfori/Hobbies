@@ -1,5 +1,5 @@
 # Gruppens hobbyer
 
-- [Simon](Simon-hobbies.md)
-- [Yagmur](Yagmur-hobbies.md)
-- [Rawnd](Rawnd-hobbies.md)
+- [Simon](Simon-Hobbies.md)
+- [Yagmur](Yagmur-Hobbies.md)
+- [Rawnd](Rawnd-Hobbies.md)
