@@ -1,0 +1,4 @@
+- Musik/DJ
+- Gaming
+- Sport
+- Mad
