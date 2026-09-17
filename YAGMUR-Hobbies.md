@@ -1,0 +1,4 @@
+- Træning
+- være sammen med mine veninder
+- Arbejde
+- 
