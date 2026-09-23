@@ -2,3 +2,4 @@
 - Gaming
 - Sport
 - Mad
+- Planter
